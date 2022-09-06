@@ -1,4 +1,4 @@
-# Daniel Kreis Public Resume
+# Daniel G Kreis Public Resume
 
 I am an experienced field service engineer with a background in data analysis, looking for a career with less travel and better work-life balance. 
 
